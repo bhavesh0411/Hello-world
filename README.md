@@ -3,3 +3,4 @@
 # Madra: I've been waiting for you, Hashirama!!!!
 # Hashirama: .... I'll deal with you later!
 # Madra: He hasn't changed a bit.
+hahahahaha...
